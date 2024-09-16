@@ -1,1 +1,0 @@
-# shct_butakov
